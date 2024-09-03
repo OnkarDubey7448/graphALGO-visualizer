@@ -53,6 +53,6 @@
 
 Thank You !
 
-Have a nice Day :hugs:
+
 
 
